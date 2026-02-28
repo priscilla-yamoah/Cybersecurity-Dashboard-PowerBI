@@ -40,5 +40,5 @@ This dashboard enables security teams to move swiftly from insight to action:
 3.  Navigate through the three interactive pages for the full analysis.
 
 ## 📬 Connect with Me
-📧 anshreesharma011@gmail.com
-🔗LinkedIn : https://www.linkedin.com/in/anushree-sharma-9a4253272/
+📧 priscillayamoah16@gmail.com
+🔗LinkedIn : https://www.linkedin.com/in/priscilla-yamoah-83a657203
